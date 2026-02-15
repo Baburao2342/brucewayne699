@@ -1,10 +1,20 @@
-- 👋 Hi, I’m @brucewayne699
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+## About Me
 
-<!---
-brucewayne699/brucewayne699 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Gooner Gooner Gooner Gooner
+Gooooooner reeeeeee
+
+Gooner Gooner Gooner Gooner
+Gooooooner reeeeeee
+
+Gooner Gooner Gooner Gooner
+Gooooooner reeeeeee
+
+Hello! I am gooner Shayeeq Pervert!
+
+I love little girls!
+
+FAH!!!!!
+
+>[!IMPORTANT]
+>I use git.gay exclusively.
+>I am a linux user. If you use Windows, stop. You wanna play video games? What are you, a child?
